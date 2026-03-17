@@ -8,6 +8,8 @@
 
 - *doki doki literature club*
 
+- *the amazing digital circus*
+
 - *undertale / deltarune*
    
 - *madoka magica*
